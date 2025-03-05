@@ -19,7 +19,7 @@ Check out my GitHub repositories to see my latest projects, including:
 
 ## 📫 Get in Touch
 - 💼 [LinkedIn](https://www.linkedin.com/in/neeharika-kuchipudi/)
-- ✉️ Email: neeharikakuchipudi@gmail.com
+- ✉️ Email: neeharikakuchipudi1@gmail.com
 - 🌐 [Portfolio Website](#) *(Coming Soon!)*
 
 ### 📜 Fun Fact
